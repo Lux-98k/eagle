@@ -1,2 +1,2 @@
 # eagle
-but some of us are looking at the star.
+but some of us are looking at the moon.
